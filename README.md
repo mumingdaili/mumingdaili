@@ -1,4 +1,6 @@
-## Hi there 👋
+## 沐鸣2平台|沐鸣2总代理|沐鸣2平台注册网址|沐鸣2开户-沐鸣2平台
+
+<https://mumingdaili.github.io>
 
 <!--
 **mumingdaili/mumingdaili** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
